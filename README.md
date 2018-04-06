@@ -1,0 +1,2 @@
+# The-Pet-Loss-Center
+As you prepare to say goodbye to your precious pet, it’s important to educate yourself on the variety of the options and information given to you. As you were responsible for your pet in life, you also have that responsibility in death. With that comes the job of knowing each aspect of their final arrangements are to be at our discretion and should not happen without a pet parent’s consent. Educating yourself on your end-of-life options is just another responsibility of a good pet parent. 
